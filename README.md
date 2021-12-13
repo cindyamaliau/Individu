@@ -1,0 +1,2 @@
+# Individu
+CindyAmaliaUtari
